@@ -1,0 +1,2 @@
+# haftalik-calismalar
+# haftalik-calismalar
